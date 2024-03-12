@@ -1,3 +1,3 @@
 # We are MALEVOLENT CROW
 
-We are a small idie game developer team from scotland!
+We are a small idie game development team from scotland!
